@@ -1,6 +1,5 @@
 ### Hi there 👋, I am SM Nurul Islam
 #### I am a web developer and WordPress expert. I am expert in fixing any WordPress website issues.
-![I am a web developer and WordPress expert. I am expert in fixing any WordPress website issues.](https://scontent.fdac39-1.fna.fbcdn.net/v/t1.6435-9/240538468_853250611969811_4837403371890070627_n.jpg?_nc_cat=107&ccb=1-5&_nc_sid=e3f864&_nc_ohc=15ax9bd0sxcAX-5PAum&_nc_ht=scontent.fdac39-1.fna&oh=c1ea73e5af99f38625961ecc86ceb06a&oe=614E53BB)
 
 
 -----Expertise-----
